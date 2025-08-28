@@ -1,2 +1,1 @@
-![silly](https://github.com/user-attachments/assets/ccbda165-70c4-49ca-911c-9821817a046a)
-# sin points only at homosexuals
+[here comes the yapper](https://github.com/user-attachments/assets/a0a0c494-f2a8-4544-8fcb-6c93a31671d9)
